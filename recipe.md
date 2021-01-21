@@ -1,0 +1,3 @@
+directions to make cookies are :
+Preheat oven to 350°. In a large bowl, cream butter and sugar until light and fluffy. Beat in eggs and molasses. Combine the flour, ginger, baking soda, cinnamon, cloves and salt; gradually add to creamed mixture and mix well. Fold in pecans.
+Shape into 2-in. balls and roll in coarse sugar. Place 2-1/2 in. apart on ungreased baking sheets. Bake 13-15 minutes or until tops are cracked. Remove to wire racks to cool.
